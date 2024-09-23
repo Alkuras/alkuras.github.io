@@ -1,1 +1,1 @@
-# alkuras.github.io is the greatest web ppage of al time!!!
+# alkuras.github.io is the greatest web page of al time!!!
